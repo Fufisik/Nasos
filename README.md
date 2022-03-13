@@ -1,1 +1,1 @@
-SIMULATOR NASOSA iS SUS
+vot eto nasos
